@@ -1,7 +1,8 @@
 # hack_cctv
 Hack &amp; cctv
 
-https://s8.uupload.ir/files/inshot_%DB%B2%DB%B0%DB%B2%DB%B3%DB%B0%DB%B4%DB%B2%DB%B7_%DB%B1%DB%B5%DB%B5%DB%B4%DB%B1%DB%B9%DB%B9%DB%B0%DB%B5_488r.jpg
+<a href="https://uupload.ir/view/inshot_۲۰۲۳۰۴۲۷_۱۵۵۴۱۹۹۰۵_488r.jpg" target="_blank"><img src="https://s8.uupload.ir/files/inshot_۲۰۲۳۰۴۲۷_۱۵۵۴۱۹۹۰۵_488r_thumb.jpg" border="0" alt="آپلود عکس" /></a>
+
 hacker_samy
 
 CCTV-Hacker
