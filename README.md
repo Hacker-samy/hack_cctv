@@ -1,7 +1,14 @@
 # hack_cctv
 Hack &amp; cctv
 
-<a href="https://uupload.ir/" target="_blank"><img src="https://s8.uupload.ir/files/inshot_۲۰۲۳۰۴۲۷_۱۵۵۴۱۹۹۰۵_488r.jpg" border="0" alt="آپلود عکس" /></a>
+
+
+
+
+
+
+
+
 
 hacker_samy
 
