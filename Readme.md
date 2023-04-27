@@ -1,0 +1,7 @@
+#TERMUX √
+
+#KALI √
+
+#PYTHON √
+
+
